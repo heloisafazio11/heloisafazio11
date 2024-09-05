@@ -12,6 +12,11 @@ amo sair com os meus amigos
 
 gosto de jogar jogos online e assistir séries
 
+quero fazer biomedicina 
+
 ##vocẽ pode entrar em contato comigo em silva.martins.heloisa.@escola.pr.gov.br
 
 ![](https://media1.tenor.com/m/f4PUj7wUIm4AAAAC/cat-tongue.gif)
+
+
+![](https://media.tenor.com/4DiFwww6548AAAAj/kitty.gif)
